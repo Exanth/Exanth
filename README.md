@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Exanth
+- 👀 I’m interested in video games, writing, and dungeons and dragons
+- 🌱 I’m currently improving myself, from empathy to self-forgiveness
+- 💞️ I’m looking to collaborate on small games
+- 📫 How to reach me: Ven#4903
